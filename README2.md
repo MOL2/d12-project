@@ -12,7 +12,9 @@ L'école de demain . . .
     programme nature : Charmarke Abdillahi-Kamil / RASHIDI SALUMU
     programme tech : pablo   routhier / burak  ekici
 
-* Nos engagements : 
+* Nos engagements : Burak
+
+* Stage et cours du soir : maulde
 
 * Contact : maulde / mohamed
 
